@@ -1,1 +1,1 @@
-# privacy-policy
+https://mrzand.github.io/privacy-policy/
